@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: não entre 
 - 😄 Pronouns: todos 
 - ⚡ Fun fact: a maioria dos gatos tricolor são fêmeas
-
+🐕
